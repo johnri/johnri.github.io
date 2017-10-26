@@ -1,1 +1,1 @@
-# Johnn Rivard
+# John Rivard
